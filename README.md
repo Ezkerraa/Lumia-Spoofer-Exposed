@@ -2,7 +2,6 @@ Lumia#1111 Expose
 
 
 100% scam, he known scammer, all vouches on Discord are fake and his server is full of bots. He uses alts to recommend the spoofer and send people to his own Discord by pretending to be a happy customer. He will ask people in other spoofer servers and start talking about a spoofer that do work…
-I paid for the spoofer 2 weeks ago and got scammed by Lumia too
 They ask you to buy Gift cards (typically for scammers offcourse so there’s no trace and buyer protection) and after you send code they stop responding forever. Their support is a bot.
 You will eventually get banned if you expose them.
 All the vouches are also by people that get free nitro of the owner. Ask them.
